@@ -1,1 +1,2 @@
-Contact email: mitchellvandevorst@gmail.com
+For all questions regarding Tutoriuss
+Email: mitchellvandevorst@gmail.com
